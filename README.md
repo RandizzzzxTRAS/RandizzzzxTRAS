@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning jaringan" internet yang ada
 - 💞️ I’m looking to collaborate on tkj
 - 📫 How to reach me just call me 08561921015
-- 😄 Pronouns: Randizzzzxcom
+- 😄 Pronouns: Randi
 - ⚡ Fun fact: i,m singel
 
 <!---
